@@ -7,7 +7,11 @@
 7. Using a spoon and the strainer, remove all the juice by squeezing it out!
 8. Add the juice to the cream cheese bowl.
 9. Continue whisking to blend the ingredients!
+
 10.With another bowl, pour the cookie crummbs into the bowl. This will be the base.
+
 11.Add the cream cheese mixture to the cookie crumb bowl and wrap it!
+
 12.Refrigerate it for about 1-2 hours!(optional, but this step makes it firm!)
+
 13.Eat the cheesecake!
